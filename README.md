@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @yuceugur
+https://www.linkedin.com/in/uguryuce0/
